@@ -1,0 +1,2 @@
+# bharathicollege.edu.in
+bharathicollege 
